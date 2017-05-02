@@ -1,1 +1,1 @@
-# SMKN-1-Cibadak
+# SMKN 1 Cibadak
